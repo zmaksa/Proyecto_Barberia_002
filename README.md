@@ -5,3 +5,4 @@ nomas le echamos ganas yo la mya y la aylin nose como se llama esa bieja
 imagina andar leyendo el readme de este proyecto cagado xpp
 oye si estas leyendo esto para contratarme en tu empresa dale de una vez contratame 
 tengo cerebro inteligente tengo estudios tengo dinero entreno varios meses
+JAJAJ SE ME HABÍA OLVIDADO QUE ESCRIBÍ ESTO ahi lo voy a dejar xddd
